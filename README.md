@@ -1,7 +1,6 @@
+# _︵〃 Suh dude, lemme open yo equip menu. 〃_
 
 ![TrafficRender (1)](https://github.com/user-attachments/assets/97993c8f-224c-49ae-b920-146918dd2c6f)
-
-# _︵〃 Suh dude, lemme open yo equip menu. 〃_
 
 〃 Well if you're **THAT** lazy to open the link, I'll give a shortened version here.
 
