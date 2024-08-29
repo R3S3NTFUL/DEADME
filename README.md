@@ -6,7 +6,7 @@
 
 ➘ **Basic DNI criteria:**
 
-❜ Proshippers, Racists and the like## .
+❜ Proshippers, Racists and the like.
 
 ❜ People who are / below **15**, do I have to say more?
 
