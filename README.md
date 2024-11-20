@@ -12,7 +12,7 @@
 
 ❜ Weirdos, go bring your energy elsewhere.
 
-➘ **Feel free to INT if you're not within the said criteria, though it's recommended you read through the Patreon to get a further understanding of everything.**
+➘ **Feel free to INT and/or cuddle + hide (c+h), I I don't bite! -- if you're not within the said criteria, though it's recommended you read through the Patreon to get a further understanding of everything.**
 
 ![Title_Menu](https://github.com/user-attachments/assets/9ba6d459-8bf0-4e3f-a5e4-3c456f57b11b)
 
